@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 I'M Mallu
  I'm currently learning
 
 
